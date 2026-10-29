@@ -46,3 +46,6 @@ Free resources to start (no email, no paywall):
 
 Full roadmap, with every resource and link:
 https://lnkd.in/dhm2SH3q
+
+<img width="702" height="880" alt="image" src="https://github.com/user-attachments/assets/3696bc7d-1093-4bd9-be6e-bafc6f0f1da8" />
+
